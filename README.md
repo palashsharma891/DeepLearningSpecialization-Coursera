@@ -11,4 +11,4 @@ The courses offered are:
 
 I'm planning to finish them all this month.
 
-If you have ddoubts reagrding the assignments, consider asking in the discussion forums. If that doesn't workm out, well, feel free to lurk around here! If you have dobts reagarding my submissions, feel free to contact me here, or on my email - palashsharma891@gmail.com
+If you have ddoubts regarding the assignments, consider asking in the discussion forums. If that doesn't workm out, well, feel free to lurk around here! If you have doubts reagarding my submissions, feel free to contact me here, or on my email - palashsharma891@gmail.com
